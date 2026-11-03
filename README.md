@@ -1,0 +1,2 @@
+# SmartClinicFinalssss
+for finals
